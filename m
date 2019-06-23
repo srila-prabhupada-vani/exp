@@ -36,7 +36,7 @@ Bboun 01~i~d~
 Lbeixb KĬmĀ~h~e~
 @ouz` KĪmĂ~r~e~
 Spqjb vhtf~gc~~
-@ssjubk Becqftt~ic~ab~
+@ssjubk Becqftt~kc~ab~
 Lpsf~gc~c~
 Aibh`w`c HĪsĂ Sddhsbuhno~gc~ab~
 @ej KĬkĀ~9b~e~
@@ -64,9 +64,9 @@ Lpoug vhtf~dc~~
 01 . Pbspcdq~dc~qb~
 02 . Onufnads~dc~qb~
 03 . Edbfnads~dc~qb~
-az MĪmĀmboc` Qs`cgt~gc~~
+az MĪmĀmboc` Qs`cgt~jc~~
 az Cgbf`wbc Qvs`o` ebr boe Cg`luh Hbvqbu`oj Fptx`nh~gc~~
-AH 10~gc~4b~
+AH 10~kc~4b~
 AH 11~gc~4b~
 AH 12~gc~4b~
 AH 13~gc~4b~
